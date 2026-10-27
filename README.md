@@ -1,1 +1,1 @@
-# Zadanie3_AISD
+Przemysław Malinowski | Zadnie 3 z AISD
